@@ -29,6 +29,6 @@ Skills: copy paste logo design virtual assistant excel  data entry business lead
 ![GitHub streak stats](https://streak-stats.demolab.com/?user=Niaz-Rashed)  
 
 ![Profile views](https://gpvc.arturio.dev/Niaz-Rashed)  
-
+https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3B3rR4culzRHCKQu1HunRgUw%3D%3D
 
 
