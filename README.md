@@ -1,3 +1,5 @@
+![copy paste virtual assistant excel  data entry business leads targeted leads email web research ](https://fiverr-res.cloudinary.com/images/t_medium7,q_auto,f_auto,q_auto,f_auto/gigs/305558165/original/549a1855f21fa243c3a0f870142a2461241bfe90/do-data-entry-web-research-for-any-industry-6c8e.jpg)
+
 ### Hi there 👋, i'm Niaz-Rashed
 #### copy paste virtual assistant excel  data entry business leads targeted leads email web research 
 ![copy paste virtual assistant excel  data entry business leads targeted leads email web research ](https://fiverr-res.cloudinary.com/images/t_medium7,q_auto,f_auto,q_auto,f_auto/gigs/305558165/original/549a1855f21fa243c3a0f870142a2461241bfe90/do-data-entry-web-research-for-any-industry-6c8e.jpg)
