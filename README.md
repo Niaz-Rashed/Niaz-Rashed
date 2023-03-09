@@ -1,8 +1,8 @@
+
 ![copy paste virtual assistant excel  data entry business leads targeted leads email web research ](https://fiverr-res.cloudinary.com/images/t_medium7,q_auto,f_auto,q_auto,f_auto/gigs/305558165/original/549a1855f21fa243c3a0f870142a2461241bfe90/do-data-entry-web-research-for-any-industry-6c8e.jpg)
 
 ### Hi there 👋, i'm Niaz-Rashed
 #### copy paste virtual assistant excel  data entry business leads targeted leads email web research 
-![copy paste virtual assistant excel  data entry business leads targeted leads email web research ](https://fiverr-res.cloudinary.com/images/t_medium7,q_auto,f_auto,q_auto,f_auto/gigs/305558165/original/549a1855f21fa243c3a0f870142a2461241bfe90/do-data-entry-web-research-for-any-industry-6c8e.jpg)
 
 Hello! I am Niaz Rashed here. I have 2 years of experience as a data entry operator. If you need anything that relates to data entry, I can help you with that. My first goal is buyer satisfaction with my work. if you need help with anything like this, please don't hesitate to contact me. Feel free to drop a message for discussing your needs and objectives., Fiverr has been my exclusive way of earning. Thank you so much. 
 
